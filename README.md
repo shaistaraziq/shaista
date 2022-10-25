@@ -1,2 +1,0 @@
-# shaista
-shaistaraziq portfolio
